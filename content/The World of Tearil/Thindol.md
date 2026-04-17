@@ -1,0 +1,3 @@
+Thindol is, in truth, primarily underground. A handful of bold or unscrupulous humans maintain a limited settlement aboveground, but the true wealth of Thindol is in the dwarven halls built into the surrounding hills. This is the once-great city of the dwarves in Samarach, and much of the architecture is still impressive. However, over generations, more and more young dwarves have chafed at Thindol's distance and isolation, abandoning its halls in favor of [[Senghar]] or [[Port Nantambu]], and so Thindol is now a shadow of what it once was.
+
+The most coastal tunnels have fallen into disrepair, and many are now flooded. Kuo-toa and yuan-ti have become to claim a foothold here, although they have not - yet - moved to threaten their neighbors. 

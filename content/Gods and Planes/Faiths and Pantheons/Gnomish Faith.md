@@ -1,0 +1,3 @@
+Gnomes believe that when they die, their spirits pass beyond [[the River]], but only for a time. After a rest, known as the Long Sleep in gnomish culture, that spirit is reborn into a new gnome. For that reason, gnomes are often named after family members or great heroes in hopes that the spirit of that passed-on gnome will be drawn to the baby. 
+
+As in many other things, gnomes take a tinkering approach to their gods. In gnomish tradition, if you want a god, it's better to make it yourself; who knows what you'll get if you just pick one up somewhere. As a result, gnome clerics are more likely to draw power directly from a cosmic force than any other heritage. They are also unlikely to proselytize: for gnomes, one's god is deeply personal. 

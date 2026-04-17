@@ -1,0 +1,3 @@
+Kibwe began as a mining town, and the stone buildings of the city speak to how successful it has been. Residents feel a strong pride towards their city and are generally very civic-minded; for many Kibweans, it is the beating heart of industry in Samarach. Kibwe employs a free market philosophy, and any number of legal or illegal items and services can be found there. The exception is slaving, which is illegal (although this does not always stop the unscrupulous from attempting it).
+
+Because of the abundant gold, silver, stone, and salt mines that surround the city, multiple neighborhoods are filled to the brim with groups of impoverished laborers from elsewhere in Tearil. These ethnic enclaves are often in conflict with each other. 

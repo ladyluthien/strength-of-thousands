@@ -1,0 +1,1 @@
+The white walls of Talashar rise at the edge of a bay formed by a now-extinct volcano like teeth. Once a cosmopolitan and multilingual city, Talashar was devastated by a civil war sixty years ago that put the feared Gorilla King, Shosenbe, on the throne. Shosenbe rules with an iron fist, and the white walls of Talashar now dangle with corpses of his opponents. 

@@ -1,0 +1,1 @@
+Oppodei are those who stand in opposition to the gods; devils, demons, and yugoloths. The most powerful of these have the ability to corrupt divine essence entirely. Even a god pledged to Evil would oppose an oppodeus, out of self-preservation if nothing else. 

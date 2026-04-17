@@ -1,0 +1,1 @@
+All tools site minus Savant, as well as Witch, Scholar, (both uploaded to Roll20) and [[Elementalist]].

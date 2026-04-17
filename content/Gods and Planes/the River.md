@@ -1,0 +1,9 @@
+The River can only be accessed in a handful of ways, and only by creatures with souls. Beasts, monstrosities, elementals, fey, and the like have a different passage towards death, and this passage - or passages - is poorly understood. Death is the easiest way to access the river, at least for creatures with souls. When they die, they are carried by the River to their final destination. 
+
+Souls trapped in the River can cheat death if they can subdue a living entity that steps bodily into the River, trading their soul for the intruder's soul and taking the intruder's corporeal form. 
+
+Creatures that dream sometimes feel that waking up feels a great deal like being pulled down into water; dreams that finish with that feeling, called drowning dreams, are given prophetic weight. Creatures tied to gods or [[Oppodei]] may find their dream bodies changed to represent their faith or pact; a fiendish warlock may have horns or flaming handcuffs, while a cleric may have a symbol of their faith.
+
+The **River** has several known properties. First, it prevents the crossing of the gods into the planes of the living, at least in physical form; second, it carries the souls of the dead to their respective deities. Third, it seems to distort the memories of those who pass through it. Fiends and Celestials, when pressed, struggle to articulate the nature of their realms, and those returned from the dead do so as well. The River also prevents most souls from returning, and washes away most magic that crosses it. Reincarnation is expensive, and there's no guarantee that it will work, or for how long. 
+
+> A note about that for mechanics: PCs get the choice of whether or not to come back, per usual, because they're heroes. For all other NPCs, it's a random roll, with the size of the die determined by how likely it would be for the character to want to return (and possibly plot shenanigans). Regardless, PCs only have vague knowledge of where they've been.

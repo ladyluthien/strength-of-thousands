@@ -1,0 +1,3 @@
+The elves primarily worship Angharradh, a tripartate deity, but most feel drawn to a specific aspect. Angharradh's trinity form is represented in a variety of ways - sun, moon, and stars; chaos, neutrality, and law; gold, silver, and iron. Below the Trinity, some elves revere demigods, who are said to be the children of gods and mortals. Unlike the Trinity, these demigods have defined genders. 
+
+The chaotic, joyous, sunny aspect of Angharradh is named Shari; the reserved, neutral god of the moon is Sehani; and the disciplined, mysterious aspect of night is Letheri. 

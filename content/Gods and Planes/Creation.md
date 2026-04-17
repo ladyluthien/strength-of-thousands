@@ -1,0 +1,11 @@
+Everyone disagrees about how the world came to be, and it seems unlikely that such disagreements will ever be resolved. Of the old races, the elves hold that the realm was given to them by Angharradh, their tripartate deity. The orcs believe that their gods shaped them and the world from the elements, and that all other races were created by other early ancestors attempting to mimic the first ancestor. Dwarves hold that Moradin smithed the world from a star not unlike like this one's sun. Dwarves and elves both acknowledge the existence of other gods, while orcs tend not to. They believe that other entities exist, to be sure - but powerful entities need not be gods, and certainly not gods to orcs. 
+
+The dragons, for their part, hold that they were sent to the world from the heavens at the bequest of the first dragon, Asgorath. Asgorath wished them to chart their own path; they created the world, with all its infinite diversity, and still watch from the heavens to see what dragonkind will do. Dragons claim that Asgorath did not just create the world, but existence itself, and therefore all other gods are subsidiaries of Asgorath. 
+
+The giants believe that this world was dreamed into existence by Amman, the All-Father. Long ago, he walked the Spine of the World in mortal flesh, and sired the race of giants. Amman stands above all gods because they are all his dreamed creation. 
+
+Human faiths are widely varied because humans can point to no specific origin, unlike the other races. For some, this is a source of anxiety; others, religious fervor. A few even argue that humans are the purest expression of the Material Plane's commitment to balance. 
+
+Some fringe faiths - usually cults, as every-day people usually do not know the Far Realm even exists - believe that the world was created as a random extrusion of matter from the Far Realm. 
+
+The truth is somewhat between all of these. The world began as a seed containing all things, including time; it is therefore meaningless to say *when* the world began, as time began with it. Like a plant sprouting, it unfolded; good, evil, law, chaos, matter, time, and magic all coming into being. Eventually, these forces grew and stabilized into the planar structure that those of the Material know today. 

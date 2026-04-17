@@ -1,0 +1,3 @@
+Jula is a small coastal village that is technically on a neighboring island, rather than the [[Samarach Peninsula]] itself. Hardy and filled with rather more halflings than usual, Jula is build into the cliffside. Its various levels are connected by a series of pulleys and winches. 
+
+In the past year, Jula has come into prominence after a group of unaffiliated pirates, the Knights of Abendego, eliminated the city council and turned the village into its base of operations. Neither legitimate sailors nor the pirates of [[Shilku]] appreciate this development - but Jula is notoriously hard to seige.

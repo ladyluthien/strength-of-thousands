@@ -1,0 +1,1 @@
+Senghar is the major (legal) port on the south side of Samarach. Senghar is Port Nantambu's drier and more cosmopolitan cousin, and it claims to be to martial study what Port Nantambu is to magic. As a result, there is a degree of petty rivalry between the cities. 

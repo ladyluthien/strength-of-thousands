@@ -1,0 +1,1 @@
+All tools site minus Savant, as well as Witch, Scholar, Elementalist, Wielder

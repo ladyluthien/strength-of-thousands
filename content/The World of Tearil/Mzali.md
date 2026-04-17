@@ -1,0 +1,5 @@
+A whitewashed coastal city, Mzali has always been beautiful, but a quirk of the coastline's shape means that at times, the breeze ceases for weeks on end. Trapped in the still air, disease proliferates, and as a result, necromancy has long been practiced there. Royals are mummified in spiraling tower-crypts (since burying the dead on a coastline has long since fallen out of favor). Due as well to the fear of sickness, Mzali has long been hostile to outsiders.
+
+Recently, Mzali has become even more isolated due to the reign of the undead child-king, Walkena. Walkena dreams of an ethnostate in Samarach with himself at the head and punishes naysayers fiercely. Rumors of a rebellion, the agents of which call themselves the Bright Lions, have been circulating.
+
+*If you're from Mzali, message me - there's more you'd know, but this is what is common knowledge.*
