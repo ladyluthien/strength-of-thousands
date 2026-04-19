@@ -1,0 +1,9 @@
+Cormyr is one of the first lands that the dragons came to after they fell into the [[Sea of Fallen Stars]]. As a result, the land has more dragonborn than most other regions. This was not without conflict, but by and large the people of what would eventually become Cormyr respected the dragons' strength and sought to emulate it. There remain enclaves in Cormyr who worship draconic gods or even dragons themselves. Still, dragons have wings, and so are no more common in Cormyr than anywhere else. 
+
+The north side of the Lake of Dragons is the habitat of a rare sea snail that can be used to create a rich purple dye. As a result, Cormyr is sometimes known as the Purple Land, and the dye as Cormyrian purple. The Cormyreans have embraced this identity, and their martial forces call themselves the Purple Knights as a result. 
+
+Cormyr has been a monarchy for about a thousand years, when the lords of its various regions saw [[Netheril]] as a potential threat - or rather, their sub-colony [[Hlundadim]]. Netheril as a whole sees Cormyr as a minor threat, but the Great Hlundadim resents their presence on its borders.
+
+Cormyr has recently fended off an incursion from Hlundadim forces, at great cost - the king **Irvel** and his son **Alusair** were both killed in battle, and his daughter **Raedra** has just recently taken the throne. Its military forces are therefore depleted, and many who joined the battle opportunistically are now heading home.
+
+Cormyr is bordered by the Thunder Peaks to the east, extending down to the Vast Swamp to their south. To the south, it is bordered by the Dragon Lake. To the west, the Storm Horns form its other border, and to the north it is of course bordered by [[The Anaurach]]. A small nation, it is nonetheless proud of its heritage, strength, and courtly manners. 

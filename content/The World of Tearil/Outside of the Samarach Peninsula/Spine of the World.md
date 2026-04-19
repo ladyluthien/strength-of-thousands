@@ -1,0 +1,3 @@
+The Spine of the World, as it is known, is a massive frozen mountain range that stretches from [[the Trackless Sea]] all the way to the [[Celestial Sea]]. What lies beyond is a mystery that only the giants know, and perhaps the most adventurous of dragons. The great cold expanse of glaciers and rock is inhospitable to even most giants in [[the Storm Coast]].
+
+However, people have still made their homes at the base of the first mountains. Dwarves first emerged from the ground here, and their great citadel, long since lost, is rumored to be located at the end of half a dozen impassable valleys. 

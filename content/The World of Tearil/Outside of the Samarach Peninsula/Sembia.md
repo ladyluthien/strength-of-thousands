@@ -1,0 +1,1 @@
+Sembia is a small state that borders the [[Sea of Fallen Stars]] and has, as of about eighty years ago, sworn fealty to [[Netheril]]. Primarily grasslands, it exports grain and cattle, both meat and hides.

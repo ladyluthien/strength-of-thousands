@@ -1,0 +1,1 @@
+The Anaurach is a great expanse of desert and ruin to the east of [[The Storm Coast]]. The site of the great battle between the elves, it is now devoid of life. Only the vilest of creatures choose to live there; between the harshness of its conditions and the eerie feeling that still lingers there, even the floating cities of [[Netheril]] prefer to go around.
